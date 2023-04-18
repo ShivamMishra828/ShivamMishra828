@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **MERN Stack**
 
-- 👨‍💻 All of my projects are available at [www.shivam-portfolio.me](www.shivam-portfolio.me)
+- 👨‍💻 All of my projects are available at [https://www.shivam-portfolio.me](https://www.shivam-portfolio.me)
 
 - 📫 How to reach me **mailtoshivam828@gmail.com**
 

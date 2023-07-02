@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **mailtoshivam828@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1VJ7cjhz10GpgBg8DWDzgEID6ce7MzzmT/view?usp=share_link](https://drive.google.com/file/d/1VJ7cjhz10GpgBg8DWDzgEID6ce7MzzmT/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1VJ7cjhz10GpgBg8DWDzgEID6ce7MzzmT/view?usp=share_link](https://drive.google.com/file/d/1gtvI9A1GKlFhjrIJ6lH0ls8lSpm_ujRZ/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
